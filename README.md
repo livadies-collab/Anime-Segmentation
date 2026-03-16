@@ -19,7 +19,11 @@
 ## 📸 Демонстрация работы
 
 
-Uploading Запись экрана 2026-03-16 195222.mp4…
+
+
+
+https://github.com/user-attachments/assets/dd91e569-9567-4576-a41c-17326c0a7686
+
 
 
 
